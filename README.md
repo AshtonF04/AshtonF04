@@ -5,8 +5,6 @@
 
 - 👨‍💻 Learn more about me at [http://www.ashtonfranklin.com](http://www.ashtonfranklin.com)
 
-- 💬 Ask me about **Anime, Soccer, or Video Games**
-
 - 📫 How to reach me **ashtonfranklin772@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
